@@ -26,7 +26,8 @@
 - **Self-Expression:** Aid women in expressing themselves through styles that reflect their unique characteristics.
 
 ## Get Started
-**Not Available for Public yet, please stay tuned!**
+
+**Not available for Public yet, please stay tuned!**
 
 ## Contact
 
